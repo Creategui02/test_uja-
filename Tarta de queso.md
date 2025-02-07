@@ -4,7 +4,7 @@ Tags:: #dessert
 # Ingredientes
 
 * 500g queso mascarpone
-* 500g queso philadelphia
+* 600 queso philadelphia
 * 260-300g azúcar 
 * 7 ud. huevos 
 * 25 ml. leche 
